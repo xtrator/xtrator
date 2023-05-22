@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **alexander.luna.santillan@outlook.com**
 
-- ⚡ Fun fact **I've watched the Irishman three times on a single week.**
+- ⚡ Fun fact **I've watched The Irishman three times in a single week.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
